@@ -16,12 +16,16 @@
   𓂃 [pronouns](https://en.pronouns.page/@eggisyummier)  ,  [strawpage](https://kakashibukkake.straw.page/)
 
 
-<p align="center"> .ᐟ anti censorship, anti harrassment ( i will block incest, pedo, zoo + more . i block specifc media 4 comfort )
+<p align="center"> .ᐟ anti censorship, anti harrassment
+ 
+ ( i will block incest, pedo, zoo + more . i block specifc media 4 comfort )
 
   
-.ᐟ  dry/blunt replies , i do not bite i am not a dickhead
+.ᐟ  dry/blunt replies but i enjoy talking
 
-↻ .ᐟ  if u have any questions pls lmk/dm , i have no hostility and would like to avoid drama or fights
+↻ .ᐟ  if u have any questions pls lmk/dm 
+
+ i have no hostility and would like to avoid drama or fights
 
 ───────────────
 
