@@ -13,7 +13,7 @@
 
 
   
-  𓂃 [pronouns](https://en.pronouns.page/@eggisyummier)  ,  [strawpage](https://kakashibukkake.straw.page/)
+  𓂃 [pronouns](https://en.pronouns.page/@kashisangel)  ,  [strawpage](https://kakashibukkake.straw.page/)
 
 
 <p align="center"> .ᐟ anti censorship, anti harrassment
