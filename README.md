@@ -18,7 +18,7 @@
 
 <p align="center"> .ᐟ anti censorship, anti harrassment
  
- ( i will block incest, pedo, zoo + more . i block specifc media 4 comfort )
+ ( i will block incest, pedo lolisho, zoo + more . i block specifc media 4 comfort )
 
   
 .ᐟ  dry/blunt replies but i enjoy talking
