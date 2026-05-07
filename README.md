@@ -15,9 +15,9 @@
   
   𓂃 [pronouns](https://en.pronouns.page/@kashisangel) , [strawpage](https://kakashibukkak3.straw.page) , [atabook](https://kashi.atabook.org/)
 
-<p align="center"> .ᐟ anti censorship, anti harrassment
+<p align="center"> .ᐟ anti censorship, anti harrassment, watch shows critically
  
- ( i will block incest, pedo lolisho, zoo, proshippers + more . 
+ ( i will block incest, pedo lolisho, zoo, ship discourse + more . term proship makes me uncomfortable and i'll automatically ignore)
  
  i block specifc media 4 comfort )
 
