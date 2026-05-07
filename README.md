@@ -15,12 +15,11 @@
   
   𓂃 [pronouns](https://en.pronouns.page/@kashisangel) , [strawpage](https://kakashibukkak3.straw.page) , [atabook](https://kashi.atabook.org/)
 
-<p align="center"> .ᐟ anti censorship, anti harrassment, watch shows critically
+<p align="center"> .ᐟ anti censorship, anti harrassment
  
- ( i will block incest, pedo lolisho, zoo, ship discourse + more . term proship makes me uncomfortable and i'll automatically ignore)
+ ( i will block incest, pedo lolisho, zoo, ship discourse + more . term proship makes me uncomfortable and i'll automatically ignore
  
  i block specifc media 4 comfort )
-
   
 .ᐟ  dry/blunt replies but i enjoy talking
 
@@ -28,6 +27,7 @@
 
  i have no hostility and would like to avoid drama or fights
 
+ keeping my bubble as comfortable as i can ^^ 
 ───────────────
 
  ◞  ![1000012383](https://github.com/user-attachments/assets/7b55b7b9-562a-4c77-9adf-785bf4574f43) ꒱
